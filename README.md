@@ -1,4 +1,4 @@
-### **Olá, sou Vitor Amorim**,
+### Olá, sou **Vitor Amorim**,
 
 Mestre em Ensino de Ciências e Matemática pela Universidade Federal de São Paulo (2023). 
 Licenciado em Ciências da Natureza pela Universidade de São Paulo (2020). 
